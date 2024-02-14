@@ -23,6 +23,333 @@ Your ticket is now solved!
  
   		  	Harriet Magolego
   	Thu, 01/11/24 1:30 pm 	
+   Schneider Electric Case # 107331069: Training Inquiry - [ thread::WxL1v0u7caieatIXKAsfgj4:: ]
+Inbox
+Mail2Case -ZA QUOTES <za-quotes@schneider-electric.com>
+	
+Tue, Feb 13, 10:37 AM (1 day ago)
+	
+to me
+ 
+
+                                                           
+
+Dear Tshingombe fiston,
+
+
+Thank you for contacting Schneider Electric Customer Care Center.
+
+Kindly find below our reply to your request.
+
+ 
+
+Case Reference # : 107331069                                               
+
+Date Created: 2024/02/13
+
+ 
+
+Subject: Training Inquiry
+
+ 
+
+Answer: 
+
+ 
+
+ 
+
+Kindly note that for training inquiries please contact Schneider Academy ZA
+
+ 
+
+Contact person - Dilaine Subban
+
+email: dilaine.subban@se.com / za-training@se.com
+
+Tel: 0110461900/02
+
+ 
+
+To view all contents of courses, pricing, scheduled dates (virtual Instructor-led or classroom training) and to make a booking, please click on the training page link: https://www.se.com/za/en/work/services/training/
+
+ 
+ 
+
+ 
+
+ 
+
+In case of any further assistance, please do not hesitate to contact us.
+
+ 
+
+Tel:
+· 086 130 0222 (South Africa only)
+· +27 11 230 5880 (All countries)
+
+E-Mails:
+· Commercial support (For Orders-Partners only): za-ccc@schneider-electric.com
+· Technical support (For Technical assistance, price and availability): za-quotes@schneider-electric.com
+· Returns: za-returns@schneider-electric.com
+
+
+Kind Regards,
+
+Mbali Mbatha
+
+South Africa Customer Care Center 
+
+ 
+
+ 
+
+Question:
+
+ 
+
+Training Inquiry
+
+ 
+
+https://schneider-electric.app.box.com/web_links/11516449/shared/b03npplgr3j3kb8cudp2b8bj815n9hos
+
+ 
+
+ 
+ 
+ 
+
+
+thread::WxL1v0u7caieatIXKAsfgj4::
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsTue, Feb 13, 10:57 AM (1 day ago)
+	
+to dilaine.subban, za-returns, za-ccc, za-training, Mail2Case
+hello dear thank u for your support 
+ portofolio career ,Research college engineering career joint gov compagny department 234.docx
+ Portofolio evidence low dhet saqa su 520.docx
+ zaire 24 exam 267.docx
+ 50 Attachments  •  Scanned by Gmail
+Dilaine Subban
+	
+AttachmentsTue, Feb 13, 11:29 AM (1 day ago)
+	
+to SM, me, SM
+
+Dear Customer
+
+ 
+
+To access the Training Calendar for 2024 please click here: https://app.klaxoon.com/join/GSVDPS3, note the courses are scheduled either at Schneider Midrand or virtually via Teams.           
+
+ 
+
+To view all contents of courses, pricing, scheduled dates (virtual Instructor-led or classroom training) and to make a booking, please click on the training page link:  https://www.se.com/za/en/work/services/training/ (click on the link on each course in order to view pricing and duration).
+
+ 
+
+Please see attached the new training price list with all the courses we currently have on offer.
+
+ 
+
+Let me know if you have any questions.
+
+ 
+
+Kind Regards
+
+ 
+
+Dilaine Subban
+
+Academy Operations Coordinator
+Customer Projects & Services
+International Operations
+Schneider Electric
+	
+
+D  +27 011 054 x4510
+M  +27 083 655 1097
+Customer Care  0860 1300 222/ +27 11 230 5880
+Skype  dilaine.subban@se.com
+E  dilaine.subban@se.com
+Alt E  za-training@schneider-electric.com
+	
+
+09 Old Pretoria Main Road
+Halfway House
+Midrand, 1685
+South Africa
+
+ 
+
+Blog
+	
+
+Download mySchneider app
+
+24/7 support. Mobile catalog. Access to expert help.
+
+*Please consider the environment before printing this e-mail
+	
+
+Blog Blog Blog Blog Blog Blog 
+
+ 
+
+ 
+
+ 
+
+General
+
+From: tshingombe fiston <tshingombefiston@gmail.com>
+Sent: Tuesday, 13 February 2024 10:57
+To: SM EUR ZA-Quotes <za-quotes@schneider-electric.com>; Dilaine Subban <dilaine.subban@se.com>; SM EUR ZA-Returns <za-returns@schneider-electric.com>; SM EUR ZA-Ccc <za-ccc@schneider-electric.com>; SM EUR ZA-Training <za-training@za.schneider-electric.com>
+Subject: Re: Schneider Electric Case # 107331069: Training Inquiry - [ thread::WxL1v0u7caieatIXKAsfgj4:: ]
+
+ 
+
+[External email: Use caution with links and attachments]
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Tue, Feb 13, 11:31 AM (1 day ago)
+	
+to Mail2Case, za-returns, za-training, dilaine.subban, za-ccc
+Skip to content or Skip to main navigationmain navigation
+Take full advantage of Klaxoon + unlimited use of all Templates from €24.90/month
+Question Inbox
+Questions
+Question filter menu
+
+
+20 minutes ago
+Question sent21 minutes ago
+
+
+Transcript Report Name: Tshingombe fiston Business Unit PRM Date Criteria Type: Training End Date - Session and External training will be filtered using end date. For all other training types, completion date will be used
+•
+Your rating
+
+
+Transcript Report Name: Tshingombe fiston Business Unit PRM Date Criteria Type: Training End Date - Session and External training will be filtered using end date. For all other training types, completion date will be used
+
+Average score0
+0%
+0%0%0%0%
+
+0 votes
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+    Access code...
+
+
+
+
+
+
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Tue, Feb 13, 12:16 PM (23 hours ago)
+	
+to dilaine.subban, za-returns, za-ccc, za-training, Mail2Case
+Skip to Main Content
+Tshingombe Tshitadi
+Dashboard | Log Out
+My Career Account
+Your consent type has been updated!
+
+Options shown include to update your full profile (helps get important information to our recruiting team), current and past application submissions with current status as well as managing subscription preferences to our talent communities.
+
+ 
+
+How can I correct my Personal Information?
+
+No need to wait for us, you own and are empowered to correct your data at any time. Just click on 'Update My Profile' and correct the information.
+Options
+Update My Profile
+View Current Job Opportunities
+Manage My Interests
+My Rights
+Submissions
+All times are in Eastern European Time.
+Each row is an application to a Job. The last column contains buttons for actions such as withdrawing or continuing an application if applicable. ID 	Title 	Status 	Last Update 	Actions
+2023-63832 	Team Leader - Services Customer Care Centre 	Not Selected 	2/13/2024 	
+2023-62636 	Project Engineer 	Under Review 	2/7/2024 	
+2023-62603 	Technical Leader 	Under Review 	2/7/2024 	
+2023-62857 	Level 3 Technical Support Engineer 	Under Review 	12/5/2023 	
+Privacy NoticePowered by the iCIMS Talent Platform (Opens new window)
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Tue, Feb 13, 12:16 PM (23 hours ago)
+	
+to Mail2Case, dilaine.subban, za-returns, za-ccc, za-training
+Skip to Main Content
+Welcome page
+Tshingombe Tshitadi
+Dashboard | Log Out
+Your Profile
+Please enter updated information about yourself.
+
+Please be sure to fill out all required fields * indicates a required field.
+Connected with google-plus-disconnect-icon
+Disconnect
+1) Resume/CV
+Please upload your resume/CV (Max size: 5 MB)*
+Resume202312050416.pdf
+3) Tell us about yourself
+First Name*
+Last Name*
+Email*
+Preferred Method of Contact
+Preferred Method of Contact
+— Make a Selection —
+Preferred Engagement Language*
+Preferred Engagement Language
+English
+Are you open to relocation?
+Are you open to relocation?
+— Make a Selection —
+Phones (1)
+Number (Please include "+country code" before your number, e.g.+8612345678)
+Addresses (1)
+Country of Residence* required.
+South Africa
+State/Province
+No states available
+Zip/Postal Code* required.
+Relevant documents for your application
+Additional Documents
+certificate scheiner long build.pdf
+Additional Documents 2
+certificate%20scheinerd%20script.pdf
+Additional Documents 3
+My Computer (Opens new window)My Computer
+Google Drive (Opens new window)
+Dropbox (Opens new window)
+
+For more information, read the Privacy Notice.
+Privacy NoticePowered by the iCIMS Talent Platform (Opens new window)
+
+	
+
  
   	Good day Tshingombe
 
