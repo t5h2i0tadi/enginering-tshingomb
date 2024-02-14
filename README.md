@@ -581,3 +581,23 @@ tshingombe (Thu, 1/11/2024, 01:42:05 pm)
 hi 	
  
 	Chat now 💬 		Powered by HelpDesk 	
+Item History for zaire-gmail-welcome-to-learner-profiler-for-central-johannesburg-tvet-college_202402 (page drawn: PST: 2024-02-14 01:57:17)
+question-dark Legend and row counts:
+Waiting to run 	1
+Running 	1
+Waiting for admin 	0
+Parked 	0
+Other 	0
+Finished 	5
+server readonly -- tasks waiting for harddrive fix
+disk readonly -- tasks waiting for rescue task
+where am I in line?
+identifier 	task_id 	server 	cmd 	submittime 	submitter 	args
+zaire-gmail-welcome-to-learner-profiler-for-central-johannesburg-tvet-college_202402 - History Mgr 	4159556639	ia902800.us.archive.org	modify_xml.php	(12.0 seconds) 	Rdferz	-target=reviews&-patch={"..
+zaire-gmail-welcome-to-learner-profiler-for-central-johannesburg-tvet-college_202402 - History Mgr 	4159547451	iw600403	derive.php	(14.9 minutes) 	Rdferz	server_primary=ia902800.u..
+zaire-gmail-welcome-to-learner-profiler-for-central-johannesburg-tvet-college_202402 - History Mgr 	4159547093	ia902800.us.archive.org	book_op.php	(15.5 minutes) 	Rdferz	op0=VirusCheck&dir=/9/ite..
+zaire-gmail-welcome-to-learner-profiler-for-central-johannesburg-tvet-college_202402 - History Mgr 	4159544192	ia902800.us.archive.org	archive.php	(20.5 minutes) 	Rdferz	done=delete&from_url=rsyn..
+zaire-gmail-welcome-to-learner-profiler-for-central-johannesburg-tvet-college_202402 - History Mgr 	4159541497	ia902800.us.archive.org	archive.php	(23.8 minutes) 	Rdferz	done=delete&from_url=rsyn..
+zaire-gmail-welcome-to-learner-profiler-for-central-johannesburg-tvet-college_202402 - History Mgr 	4159538787	ia902800.us.archive.org	archive.php	(27.5 minutes) 	Rdferz	done=delete&from_url=rsyn..
+zaire-gmail-welcome-to-learner-profiler-for-central-johannesburg-tvet-college_202402 - History Mgr 	4159538763	ia902800.us.archive.org	archive.php	(27.5 minutes) 	Rdferz	done=delete&from_url=rsyn..
+ 
