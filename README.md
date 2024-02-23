@@ -18,7 +18,9 @@ Your ticket is now solved!
   	Career Choice 	  
  if then else
 	print 	
- 
+ print a
+ print b
+ a+b=c
  
  
   		  	Harriet Magolego
